@@ -28,7 +28,7 @@
   - **Groom's Friend Pu**: Pour two cups of wine and invite both families to begin the ceremony.
   - **Participants**:
     - **Groom's family**: Uncle Toi + groom's friend Pu holding a tray of liquor
-    - **Bride's family**: Uncle Chao + bride's father + woman holding fruit waiting at the door of the house in a row.
+    - **Bride's family**: Uncle Chao + bride's father + bridemaids waiting at the door of the house in a row.
 
 **Process**: The groom's family stands outside the courtyard, waiting for the bride's family including the bride's mother inside the house waiting for the reception area.
 - Groom's family representative + main groom's friend return to the group to announce and bring the whole group into the home.
@@ -54,10 +54,10 @@
 
 ### 3. Seat Position
 - Sit according to the principle of men on the left and women on the right.
-- The groom's family had six chairs in the wall looking out.
-- The bride's house has 12 chairs outside the door (18 chairs are rented by the service).
+- The groom's family had 6 chairs next to the wall looking out.
+- The bride's house has 12 chairs outside the door looking in (18 rented chairs).
 - The remaining people sat outside in the courtyard (wooden sofa and chairs, dining table).
-- The team sat outside the door holding a crowbar (2 stainless steel tables).
+- The Dowry team sits outside the door (2 stainless steel tables).
 
 ### 4. Welcome, Introduce Yourself
 - **Responsible person**: Uncle Toi
@@ -109,11 +109,11 @@
 **Process**: The groom's family gives it first, the bride's family gives it later. There is no need to declare the value of the gift.
 
 ### 12. Tea Offering Ceremony
-- The bride and groom pour tea to the elderly, from childhood to old age, from the bride's family to the groom's family.
+- The bride and groom pour tea to the attendees ordered by seniority and from the bride's family to the groom's family.
 
 ### 13. Distribute the Dowry Back to the Groom
 - The families of both sides share tea.
-- The bride's family divides the dowry in half and gives the fruit to the groom's family.
+- The bride's family divides the dowry in half and gives the dowry to the groom's family.
 - Groom/Bride come out to take pictures and give lucky money to the dowry holding team.
 
 **Note**: Do not enter the room door. Use the side door instead.
