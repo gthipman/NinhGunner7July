@@ -1,5 +1,3 @@
-# NinhGunner7July
-
 # Morning Ceremony Schedule 7.7.2024
 
 ## 08:00 - Mira Hotel
