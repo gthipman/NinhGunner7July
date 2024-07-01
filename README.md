@@ -3,7 +3,7 @@
 ## 08:00 - Mira Hotel
 **Prepare yourself**
 - **Details**: Organize a dowry tray as a gift for the bride and prepare a group of representatives to be ready.
-- **Responsible person**: Mother of the groom, representative of the groom's family, groom, Groom’s maids team
+- **Responsible person**: Mother of the groom, representative of the groom's family, groom, groommen’s team
 
 ## 08:20 - Mira Hotel
 **The wedding team departs hotel**
@@ -12,7 +12,7 @@
 **The groom's family gathers together and prepares the team**
 - **Details**: Gather 100 meters away from the bride's house and wait for the time.
 - **List of participants in order**:
-  - Uncle Toi (groom's representative) + main groom's friend
+  - Uncle Toi (groom's representative) + main groomman Pu
   - Groom
   - Mother of the groom
   - Remaining members arranged by age
@@ -48,7 +48,7 @@
   - Representative of the bride's family
   - Representative of the groom's family
   - Carrying the Dowry on a tray into the house and place it in the correct position
-  - The men's 6-person carrying team came in last.
+  - The groommen's 6-person carrying team came in last.
 
 ## 09:00 - 10:00 - In the bride's house
 
